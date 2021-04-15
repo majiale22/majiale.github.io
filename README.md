@@ -1,0 +1,1 @@
+# majiale.github.io
